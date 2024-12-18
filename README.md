@@ -4,4 +4,4 @@
 
 [![ezgif-2-3a3137db3a](https://github.com/user-attachments/assets/6c74a66a-5e80-4052-ab28-248ce5b01c63)](https://rentry.org/FEELURNOIZ)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&letterSpacing=-0.em&duration=1&pause=1500&color=9B0000&background=8900002B&center=true&vCenter=true&multiline=true&width=130&height=30&lines=୨ৎ+click+for+info)](https://rentry.org/FEELURNOIZ)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=1000&pause=1000&color=F60909&background=8D05052F&center=true&vCenter=true&multiline=true&repeat=false&width=75&height=30&lines=rentry)](https://rentry.org/FEELURNOIZ) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=10&pause=1000&color=F60909&background=88DD0000&center=true&vCenter=true&multiline=true&repeat=false&width=25&height=25&lines=%E0%AD%A8%E0%A7%8E)](https://www.last.fm/user/kuzuhas) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=1000&pause=1000&color=F60909&background=8D05052F&center=true&vCenter=true&multiline=true&repeat=false&width=100&height=30&lines=atabook)](https://figure8.atabook.org)
