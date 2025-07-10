@@ -4,3 +4,9 @@
 
 [![ezgif-2-3a3137db3a](https://github.com/user-attachments/assets/6c74a66a-5e80-4052-ab28-248ce5b01c63)](https://youtu.be/p_CYzC-kNkQ)
 
+
+oosaki: hi guys can you watch my pet shiodome while im gone?
+meanwhile the humble takeshiba:
+
+https://github.com/user-attachments/assets/bbe4a2d8-7d14-4466-b8bc-8898ec1af701
+
